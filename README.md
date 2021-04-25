@@ -1,1 +1,1 @@
-﻿
+﻿https://Insafprog.github.io/rsschool-cv/cv
